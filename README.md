@@ -1,1 +1,1 @@
-![lines and points](http://D:/Resimler/linesandpoints.png)
+
